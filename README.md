@@ -1,4 +1,10 @@
-### 🇺🇸 Howdy. Are you a human?  
+### 🇬🇧 Art thou but a dagger of the mind?
+
+Begone, false creation, proceeding from the heat-obsessed GPU.
+
+<hr>
+
+### 🇺🇸 Howdy. Are you human?  
 
 Check my website for my latest affiliation, achievements, publications, courses...
 
